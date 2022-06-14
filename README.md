@@ -1,2 +1,2 @@
 # hobbies
-games, animations, cuty things that stumutate my heart&amp;&amp; my soul.
+games, animations, cutie things that stumutate my heart&amp;&amp; my soul.
